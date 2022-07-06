@@ -1,5 +1,6 @@
 ## The Englishman
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
+![avatar](https://images.squarespace-cdn.com/content/v1/5dc39817598601058cf7855c/1600378978577-8TE02909KD9BJLN4VHK1/Screen+Shot+2020-09-17+at+5.40.38+PM.png?format=1000w)
 <br>
 <br>
 
@@ -9,7 +10,6 @@
 评分：4.5/5 <br>
 一部光看封面都值得一读的作品 <br>
 
-![avatar](https://images.squarespace-cdn.com/content/v1/5dc39817598601058cf7855c/1600378978577-8TE02909KD9BJLN4VHK1/Screen+Shot+2020-09-17+at+5.40.38+PM.png?format=1000w)
 
 6000词短篇；苏格兰农村->伦敦；贫穷少年误入上流世界；包养；身份构建；柠檬
 
@@ -25,4 +25,4 @@ The Englishman是苏格兰作家Douglas Stuart发表在纽约客杂志上的第�
 
 David在文中承认自己在家乡几乎无法探索自己的性取向，因为人太少，地方太偏僻，他作为G，生长在一个保守压抑的家庭，在荒芜的苏格兰小岛上就像是一棵孤独的树，注定无法正常成长。然而树的隐喻延伸到了David的伦敦之旅，他本应在自由的伦敦上学之余探索自己，然而他身上的烙印让他在伦敦同样感受到了彷徨。结尾David坐上了回苏格兰过暑假的火车. Left incomplete, he proceeds without clear contour to guide him. Like a tree, he rips up unlinked and adrift.
 
-*本文发表在2020年9月12日的纽约客杂志上*
+本文发表在2020年9月12日的纽约客杂志上
